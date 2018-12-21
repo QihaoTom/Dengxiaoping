@@ -28,3 +28,33 @@
 * Deng wrote this **inscription** after his first visit to Shenzhen in 1984, Shenzhen's development and experience prove that the policy of establishing special economic zones is correct.
 * Despite isolation following China's 1989 crackdown on pro-democracy protesters, Deng made a second southern tour to Shenzhen in 1992 when he **reaffirmed** China's commitment to his policies
 * The world is now watching China's progress on the path set by the architect of its reform
+
+## How China became a superpower: 40 years of economic reform | DW News
+* The architect who **laid the foundation stones for** its economic miracle
+* He became the country's leader in December of 1978, and subsequently left a lasting mark on economy.
+* Under him, private conpanies were allowed into China, along with foreign investment.
+* Deng also created special economic zones.
+* In the four decades since, China has changed in dramatic ways.
+* Millions of rural workers **have streamed into** the country's megacities.
+* **The gap between** rich and poor has grown, along with overall prosperity.
+* Many more people there now earn enough money to spend on more than just simple survival.
+* I hope that China will continue to insist on opening-up because clearly the opening that we have seen in the last 40 years has been very beneficial for the Chinese people and for the Chinese economy.
+* But hopes that a market economy would **usher** in more democracy and freedom **have remained largely illusory**.
+* Foreign compaines complain that the state still has too much influence over trade, or its oversight is even on the rise.
+* and the country has also paid a high price for the last 40 years of **rapid growth**.
+* it was purchased in many parts of China, the cost of the environment
+* social fabric
+* massive change
+* tighter
+* 
+
+
+
+
+
+
+
+
+
+
+
